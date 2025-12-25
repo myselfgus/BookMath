@@ -3,7 +3,7 @@
 > "A única maneira de fazer um trabalho é ser ousado e aceitar ser amador."  
 > — Virginia Woolf
 
-O *Tratado Lógico-Afetivo da Linguagem e da Mente Humana* nasce de uma inquietação fundamental: como compreender a intrincada relação entre linguagem, cognição e emoção? Como médico psiquiatra, tenho observado como esses elementos se entrelaçam na experiência humana, formando a base da subjetividade e do comportamento. A linguagem não é apenas um meio de expressão, mas o próprio fundamento sobre o qual erguemos nossa realidade interna e externa.
+Este livro nasce de uma inquietação fundamental: como compreender a intrincada relação entre linguagem, cognição e emoção? Como médico psiquiatra, tenho observado como esses elementos se entrelaçam na experiência humana, formando a base da subjetividade e do comportamento. A linguagem não é apenas um meio de expressão, mas o próprio fundamento sobre o qual erguemos nossa realidade interna e externa.
 
 Este tratado representa uma tentativa de sintetizar diversas correntes filosóficas, psicológicas e neurológicas em um quadro conceitual coerente. De Spinoza a Wittgenstein, de Freud a Habermas, busquei integrar perspectivas aparentemente divergentes para oferecer uma compreensão mais completa e nuançada da mente humana.
 
